@@ -8,5 +8,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with JavaScript, C or CSS
 - 💬 Ask me about your projects
 - 📫 How to reach me: mparrarodriguez95@gmail.com 
-- 😄 Pronouns: Doesn't matter
+- 😄 Pronouns: What do I look like lol?
 - ⚡ Fun fact: I'm 19 and still no friends
